@@ -1,0 +1,2 @@
+# bahari13
+pewarisan
